@@ -1,3 +1,3 @@
 # Conferences
-- Diversitech - Tribaja - March 17-22 2025
+- Diversitech - Tribaja - March 17th-22nd 2025
 
